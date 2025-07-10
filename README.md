@@ -36,7 +36,8 @@ Be part of this groundbreaking tech journey. Engage, connect, and stay informed.
 
 📧 Contact us: contact.madazai@gmail.com  
 🔗 GitHub: MaDaZAI  
-🔗 LinkedIn: 
+🔗 LinkedIn: > E:
+https://www.linkedin.com/in/ahmed-eid-064758373?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 – A.E  
 Founder, MaDaZ-AI
